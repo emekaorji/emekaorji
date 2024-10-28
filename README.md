@@ -12,7 +12,7 @@ I'm passionate about the convergence of web3 and AI, constantly exploring the fr
 - 💆‍♂️ Mining ideas from this big brain of mine.
 
 ### Get in Touch:
-- [@code_rabbi](https://x.com/code_rabbi)
+- [@thecoderabbi](https://x.com/thecoderabbi)
 
 ### Fun Fact:
 When I'm not at work, I'm building a side-project. 🛠️
